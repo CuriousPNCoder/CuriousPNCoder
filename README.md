@@ -1,5 +1,5 @@
+Hi 👋, I'm Paramita Nandi
 
-                              Hi 👋, I'm Paramita Nandi
 
 
 https://user-images.githubusercontent.com/88779178/129148827-01989d13-ae19-4b26-8349-cbe0c2cfa528.mp4
